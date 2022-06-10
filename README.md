@@ -22,8 +22,8 @@
 
 ###### Local: Sala Nova  (3º andar do Edf. Texas) - Rua Rosário da Boa Vista, 163 Boa Vista, Recife - PE
 
-📝 Matrícula:  R$100 (Referente a Matrícula de Julho) via pix teatrodoamanha@gmail.com 
-💵 Investimento Mensal: R$100
+📝 Matrícula:  R$100,00 (Referente a Matrícula de Julho) via pix teatrodoamanha@gmail.com 
+💵 Investimento Mensal: R$100,00
 
 
 
